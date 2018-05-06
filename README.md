@@ -1,2 +1,2 @@
 # mambawang
-A boy has no name.
+A man has no name.
